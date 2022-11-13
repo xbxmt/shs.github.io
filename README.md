@@ -1,6 +1,9 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 
 ------------------------------------------------------
+### 隐形冠军
+* [隐形冠军](https://www.asuswebstorage.com/navigate/a/#/s/F3B8594CA6914110A08EAA0E29AC6E28Y)
+
 ### 文化、经济与启示
 * [文化、经济与启示](https://www.asuswebstorage.com/navigate/a/#/s/E287CF02A43D4E969141499ED86FA569Y)
 * [从明双目到开天眼](https://www.asuswebstorage.com/navigate/a/#/s/E7C22359CAEA46239321497158235920Y)
