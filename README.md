@@ -6,7 +6,7 @@
 * [松岐：AGI：内容生产的变革与机遇](https://www.asuswebstorage.com/navigate/a/#/s/D8D8C625DF644ED59D80EDF781B4E77DY)
 * [王小猪：平面视觉AI变革进行时](https://www.asuswebstorage.com/navigate/a/#/s/7E8770ACFF0C463CBDD1B07F39EAB8A2Y)
 * [Timo：ChatGPT的商业应用案例及思考](https://www.asuswebstorage.com/navigate/a/#/s/3F8B109A9E6B43F5B5BEECCBE65F08A3Y)
-* [课后互动](更新中……)
+* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/8419067761024F59988E7A8E519ED9EAY)
 
 ### 疫情 人口 经济
 * [易富贤：疫情人口经济](https://www.asuswebstorage.com/navigate/a/#/s/2F7D0F6364ED4908BBB96112408453DCY)
