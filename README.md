@@ -1,6 +1,9 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 
 ------------------------------------------------------
+### 淄博烧烤：战略策划与复盘
+* [高原：淄博烧烤：战略策划与复盘](https://www.asuswebstorage.com/navigate/a/#/s/80562B78B44E431DBA7C4995CBC44C02Y)
+* [互动交流](https://www.asuswebstorage.com/navigate/a/#/s/C8EAC443F5A24E8383C968ACFC65101FY)
 
 ### ChatGPT商业运用
 * [松岐：AGI：内容生产的变革与机遇](https://www.asuswebstorage.com/navigate/a/#/s/D8D8C625DF644ED59D80EDF781B4E77DY)
