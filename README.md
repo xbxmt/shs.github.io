@@ -2,6 +2,11 @@
 
 ------------------------------------------------------
 
+### 灾难啓示録
+
+* [赵晓：灾难啓示録](https://www.asuswebstorage.com/navigate/a/#/s/A21746D4B1F74F45BCDE46474E670F5FY)
+* [课后互动与总结](https://www.asuswebstorage.com/navigate/a/#/s/2CE34018983842C69F7B4CB32EA3E987Y)
+
 ### 全球善商特别论坛：变与不变
 
 * [赵晓：时代变局与不变之道](https://www.asuswebstorage.com/navigate/a/#/s/ECE4C7581F6141C8AA7571EBB7357A78Y)
