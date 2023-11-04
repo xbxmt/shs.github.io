@@ -4,7 +4,7 @@
 
 ### 国职场的荣耀之旅
 
-* [国职场的荣耀之旅](https://www.asuswebstorage.com/navigate/a/#/s/CD6C9419315D44509E0E3E94C61A172CY)
+* [天国职场的荣耀之旅](https://www.asuswebstorage.com/navigate/a/#/s/CD6C9419315D44509E0E3E94C61A172CY)
 * [课后互动与总结](https://www.asuswebstorage.com/navigate/a/#/s/FB631DC4ED4A4B679420DFF4BBD23158Y)
 
 ### 灾难啓示録
