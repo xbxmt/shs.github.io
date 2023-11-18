@@ -2,6 +2,11 @@
 
 ------------------------------------------------------
 
+### 如何做得人的渔夫：一位中国善商的案例与分析
+
+* [如何做得人的渔夫](https://www.asuswebstorage.com/navigate/a/#/s/2247AF9D23524BA38B013A52847371FFY)
+* [课后互动与总结](https://www.asuswebstorage.com/navigate/a/#/s/2839B4669CC64EA48C2EB8BBC22A89F3Y)
+
 ### 天国职场的荣耀之旅
 
 * [天国职场的荣耀之旅](https://www.asuswebstorage.com/navigate/a/#/s/CD6C9419315D44509E0E3E94C61A172CY)
