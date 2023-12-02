@@ -2,6 +2,12 @@
 
 ------------------------------------------------------
 
+### 基督文化如何在企业落地：善商的探索——星洲案例
+
+* [星洲团队分享](https://www.asuswebstorage.com/navigate/a/#/s/05F63ECF243D4CC18857DE8519B121B4Y)
+* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/28AF07E04D66492C8AD239F86392EC94Y)
+* [赵晓总结](https://www.asuswebstorage.com/navigate/a/#/s/4084B8AA906D40CAB282186F929A8AC7Y)
+
 ### 如何做得人的渔夫：一位中国善商的案例与分析
 
 * [如何做得人的渔夫](https://www.asuswebstorage.com/navigate/a/#/s/2247AF9D23524BA38B013A52847371FFY)
