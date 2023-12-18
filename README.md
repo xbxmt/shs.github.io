@@ -2,6 +2,12 @@
 
 ------------------------------------------------------
 
+### 企业战略落地精华
+
+* [刘高原：企业战略落地精华](https://www.asuswebstorage.com/navigate/a/#/s/8025CE3AA0EF48E7A566FA38391861F3Y)
+* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/31CF1DEDC32646E481451708962E1468Y)
+
+
 ### 基督文化如何在企业落地：善商的探索——星洲案例
 
 * [星洲团队分享](https://www.asuswebstorage.com/navigate/a/#/s/05F63ECF243D4CC18857DE8519B121B4Y)
