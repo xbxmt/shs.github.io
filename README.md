@@ -1,6 +1,10 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 
 ------------------------------------------------------
+### 辨析异端“新天地”
+
+* [辨析异端“新天地”](https://www.asuswebstorage.com/navigate/a/#/s/B854A952FF1D4A1081C0AC0ED690C600Y)
+* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/44635C4B554C44F6BA5CDD1836572512Y)
 
 ### 企业战略落地精华
 
