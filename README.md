@@ -1,6 +1,13 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 
 ------------------------------------------------------
+### “清教徒精神”与“清教徒运动”
+
+* [刘澎：“清教徒精神”与“清教徒运动”](https://www.asuswebstorage.com/navigate/a/#/s/0AC5F6DB62634927A834FC989448ED23Y)
+* [赵晓：“清教徒精神”与“清教徒运动”](https://www.asuswebstorage.com/navigate/a/#/s/E98666347B054225A77E172CA006E6D3Y)
+* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/24EEC64B0C844C4F950187BE5154B629Y)
+
+
 ### 辨析异端“新天地”
 
 * [辨析异端“新天地”](https://www.asuswebstorage.com/navigate/a/#/s/B854A952FF1D4A1081C0AC0ED690C600Y)
