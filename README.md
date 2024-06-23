@@ -6,6 +6,8 @@
 * [赵晓：基督与主义](https://www.asuswebstorage.com/navigate/a/#/s/C477ED7A59FE4AF1B136C39ECD19E2F8Y)
 * [互动讨论](https://www.asuswebstorage.com/navigate/a/#/s/8BEA48B548FB4EDBB9DD28F41F17105FY)
 * [总结分享](https://www.asuswebstorage.com/navigate/a/#/s/A8F62BA881854F9F8625F27B227B2606Y)
+
+
 ### “清教徒精神”与“清教徒运动”
 
 * [刘澎：“清教徒精神”与“清教徒运动”](https://www.asuswebstorage.com/navigate/a/#/s/0AC5F6DB62634927A834FC989448ED23Y)
