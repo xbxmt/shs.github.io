@@ -1,6 +1,14 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 
 ------------------------------------------------------
+### 后现代的争战与企业家的立场
+
+* [德雷克：谈至暗时刻善商的坚守](https://www.asuswebstorage.com/navigate/a/#/s/627971FB42E1455AA81DA8381E82F67EY)
+* [赵晓：后现代的争战与企业家的立场](https://www.asuswebstorage.com/navigate/a/#/s/7F722A77A6C74CA4BF6E679AEDBD67DEY)
+* [互动讨论](https://www.asuswebstorage.com/navigate/a/#/s/5138AA980C414F598DDD9735FFC27AB7Y)
+* [总结分享](https://www.asuswebstorage.com/navigate/a/#/s/A946B3B83DD94606BD70A6FF835B5468Y)
+
+
 ### 基督与主义
 
 * [赵晓：基督与主义](https://www.asuswebstorage.com/navigate/a/#/s/C477ED7A59FE4AF1B136C39ECD19E2F8Y)
