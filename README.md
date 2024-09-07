@@ -1,6 +1,15 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 
 ------------------------------------------------------
+### 冬天里的一把火-时局已突破
+
+* [赵晓：冬天里的一把火-时局已突破](https://www.asuswebstorage.com/navigate/a/#/s/54EA8F8D15F6418C98DAE6C356A8D2FAY)
+* [刘高原：科学商业](https://www.asuswebstorage.com/navigate/a/#/s/58DF7D2F7CB2440586A740E6F478E616Y)
+* [陈震民：地方企业的实践与经验](https://www.asuswebstorage.com/navigate/a/#/s/0A11FA2F7C864FBFACAB51F3DF2AFFECY)
+* [德雷克：也谈产能外溢](https://www.asuswebstorage.com/navigate/a/#/s/CB8122259AE446BAA04F6D5ED535F59DY)
+* [互动讨论](https://www.asuswebstorage.com/navigate/a/#/s/2404656573924DC8B9664691ABA3C328Y)
+* [总结分享](https://www.asuswebstorage.com/navigate/a/#/s/1D0B2FE24A10468AA3E7D23BE504C378Y)
+
 ### 后现代的争战与企业家的立场
 
 * [德雷克：谈至暗时刻善商的坚守](https://www.asuswebstorage.com/navigate/a/#/s/627971FB42E1455AA81DA8381E82F67EY)
