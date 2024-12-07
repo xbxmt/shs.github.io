@@ -1,6 +1,14 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 
 ------------------------------------------------------
+
+### 商业破局-科学专业地做生意
+
+* [刘高原：商业破局-科学专业地做生意](https://www.asuswebstorage.com/navigate/a/#/s/E396692609124216A7B005D4504AE053Y)
+* [互动讨论](https://www.asuswebstorage.com/navigate/a/#/s/79AEB9D3A91A471BB1E1EEB0C12F9644Y)
+
+
+
 ### 美国大选中的“马斯克现象”
 
 * [赵晓：美国大选中的“马斯克现象”](https://www.asuswebstorage.com/navigate/a/#/s/488A9DD542584EF38422FF1FC9E031E2Y)
