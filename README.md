@@ -4,8 +4,8 @@
 
 ### 上帝不止要你做个好商人
 
-* [Charles Ma](https://www.asuswebstorage.com/navigate/a/#/s/E396692609124216A7B005D4504AE053Y)
-* [互动讨论](https://www.asuswebstorage.com/navigate/a/#/s/79AEB9D3A91A471BB1E1EEB0C12F9644Y)
+* [Charles Ma](https://www.asuswebstorage.com/navigate/a/#/s/7D23BD26388147ABBECFC6D7016052ABY)
+* [互动讨论](https://www.asuswebstorage.com/navigate/a/#/s/CCD050DB3F9247E3882A69B7B9A8DE54Y)
 
 
 
