@@ -2,6 +2,14 @@
 
 ------------------------------------------------------
 
+### 上帝不止要你做个好商人
+
+* [Charles Ma](https://www.asuswebstorage.com/navigate/a/#/s/E396692609124216A7B005D4504AE053Y)
+* [互动讨论](https://www.asuswebstorage.com/navigate/a/#/s/79AEB9D3A91A471BB1E1EEB0C12F9644Y)
+
+
+
+
 ### 商业破局-科学专业地做生意
 
 * [刘高原：商业破局-科学专业地做生意](https://www.asuswebstorage.com/navigate/a/#/s/E396692609124216A7B005D4504AE053Y)
